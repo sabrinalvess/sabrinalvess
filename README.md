@@ -1,4 +1,4 @@
-# repositorio da sasa   ૮ ˶ᵔ ᵕ ᵔ˶ ა
+# repositorio da 𝑠𝑎𝑏𝑖   ૮ ˶ᵔ ᵕ ᵔ˶ ა
 
 # boaas vindas ao meu perfil :3
 
