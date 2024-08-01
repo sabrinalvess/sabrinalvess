@@ -15,7 +15,7 @@ INFP | 16y  ଘ(੭ˊᵕˋ)੭ ♡
 
 # entre em contato comigo :
 
-    ⋆    ˚  ✿ ˖  °
+# ⋆    ˚  ✿ ˖  °
 ⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀
 
 @mazzinu ig  |  @manzinu ttk  ♡
