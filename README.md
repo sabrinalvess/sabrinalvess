@@ -3,7 +3,7 @@
 # ꒰ boas vindas ao meu perfil ♡
 
 
-meu nome e 𝓈𝒶𝒷𝓇𝒾𝓃𝒶  ₊˙♡﹗˚ ༘
+meu nome e 𝑠𝑎𝑏𝑟𝑖𝑛𝑎  ₊˙♡﹗˚ ༘
 
 gosto de desenhar e musica.
 
