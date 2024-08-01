@@ -2,8 +2,10 @@
 
 # boaas vindas ao meu perfil :3
 
-meu nome e sabrina ₊˙♡﹗˚ ༘
-gosto de desenhar e musica
+meu nome e 𝓈𝒶𝒷𝓇𝒾𝓃𝒶  ₊˙♡﹗˚ ༘
+gosto de desenhar e musica.
+INFP | 16y ଘ(੭ˊᵕˋ)੭ ♡
+── ⋆⋅♡⋅⋆ ──── ⋆⋅♡⋅⋆ ──
 
 
 
