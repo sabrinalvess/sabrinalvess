@@ -8,7 +8,6 @@ meu nome e 𝑠𝑎𝑏𝑟𝑖𝑛𝑎  ₊˙♡﹗˚ ༘
 gosto de desenhar e gatinhos.
 
 INFP | 16y  ଘ(੭ˊᵕˋ)੭ ♡
-
 ── ⋆⋅♡⋅⋆ ──── ⋆⋅♡⋅⋆ ──
 
 
@@ -18,6 +17,6 @@ INFP | 16y  ଘ(੭ˊᵕˋ)੭ ♡
     ⋆    ˚  ✿ ˖  °
 ⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀
 
-@mazzinu ig
+@mazzinu ig  |  @manzinu ttk  ♡
 
 ![](https://i.giphy.com/media/v1.Y2lkPTc5MGI3NjExbHY5cXk1aWRia3ViZHVlem5jOGx3bTY3bjRjZGdsZHB2dmV5aTUzMCZlcD12MV9pbnRlcm5hbF9naWZfYnlfaWQmY3Q9cw/uCAjP7QgT0bIXbZZay/giphy.gif)
