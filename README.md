@@ -1,10 +1,20 @@
-# repositorio da sasa 2a
+# repositorio da sasa ૮ ˶ᵔ ᵕ ᵔ˶ ა
 
 # boaas vindas ao meu perfil :3
 
-meu nome e sabrina
+meu nome e sabrina ₊˙♡﹗˚ ༘
+gosto de desenhar e musica
+
+
 
 # entre em contato comigo :
+⠀⢠⣄⣀⡠⠀⠀⠀⠀⠀⣀⣄⡴⢈⡦⠀⠀⠀
+⠀⠘⠓⠿⠷⠿⡿⠖⢴⣮⡴⠚⠛⠉⠀⠀⠀⠀
+⠀⠀⠀⠀⣠⣆⡁⠀⠀⠹⢿⣦⡀⠀⠀⠀⠀⠀
+⠀⠀⢀⣴⡿⠋⠀⠀⠀⠀⠈⠹⣿⣦⠀⠀⠀⠀
+⢀⣴⣿⠟⠁⠀⠀⠀⠀⠀⠀⠀⠈⠻⣷⣄⠀⠀
+⢿⠟⠁⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠙⢿⣧⡀
+⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀
 
 @mazzinu ig
 
